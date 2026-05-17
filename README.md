@@ -21,167 +21,225 @@ Phương Tây - Dân tộc xuất hiện khi tư bản chủ nghĩa thay thế p
 NOTE CNXHKH
 https://vndoc.com/test-cau-hoi-trac-nghiem-chu-nghia-xa-hoi-khoa-hoc-phan-1-209179
 Phần 1 => 11 ( SẼ VÀO NHIỀU )
-1.
-Mác ( 5/ 5/ 1818 – 14/ 3/ 1883 ) – người Đức – học luật
+1.Mác ( 5/ 5/ 1818 – 14/ 3/ 1883 ) – người Đức – học luật
+
 Ăngghen (28/ 11/ 1820 – 5/ 8/ 1895 ) – người Đức – học kỹ thuật
+
 Lê – nin ( 22/ 4/ 1870 – 21/ 1/ 1924 )
+
 Tháng 11/ 1942 gặp nhau
+
 2. Công xã Pari 1871 – 72 ngày: Nhà nước đầu tiên của GCCN
+
 3. Các ĐCS ra đời: ĐCS Bôn – sê – vích ( 1903 ): Lê – nin sáng lập
+
 4. Năm 1917 cách mạng tháng Mười Nga thành công: Nhà nước XHCN đầu tiên ra đời
+
 5. Còn 5 nước CNXH: Việt Nam, Lào, Trung Quốc, Cuba, Triều Tiên
+
 6. Đầu thế kỷ 19 nhân loại đạt được nhiều thành tựu KHTN nhất
+
 7. Quốc tế I ( 1864 – 1876 ): Các – mác
+
 Quốc tế II (1889 – 1914 ): Ăngghen
+
 Quốc tế III ( 1919 – 1943 ): Lê – nin 
-8.
-Các Mác (5/ 5/ 1818 – 14/ 3/ 1883) – người Đức – học luật
+
+8.Các Mác (5/ 5/ 1818 – 14/ 3/ 1883) – người Đức – học luật
+
 Khái niệm chuyên chính vô sản được Các Mác dùng lần đầu tiên trong tác phẩm “Cương lĩnh Gô – ta”
+
 “ Cương lĩnh Gô – ta”
-“Quyền không bao giờ có thể ở một mức độ cao hơn chế độ kinh tế và sự phát triển văn hoá của xã hội do chế độ kinh tế đó quyết định”
+
+“Quyền không bao giờ có thể ở một mức độ cao hơn chế độ kinh tế và sự phát triển văn hoá của xã hội do chế độ kinh tế đó 
+quyết định”
+
 “Sự phát triển tự do của mọi người là điều kiện cho sự phát triển tự do của tất cả mọi người”
+
 “thuốc phiện”
+
 Chủ nghĩa duy vật lịch sử và Học thuyết giá trị thặng dư đã được C.  Mác phát triển và trình bày một cách có hệ thống trong tác phẩm: “(Bộ) Tư bản”
+
 “Bộ tư bản” - Tác phẩm được Lê – nin đánh giá là tác phẩm chủ yếu và cơ bản trình bày CNXHKH
+
 Người được Các – Mác coi là nhà tư tưởng vĩ đại nhất thời cổ đại: Aristot
+
 “Thời kì cải biến…chuyên chính”
+
 “Ý nghĩa của chủ nghĩa không tưởng phê phán và của chủ nghĩa cộng sản không tưởng phê phán là tỉ lệ nghịch với thời gian”?
+
 “Những tư tưởng thống trị của một thời đại bao giờ cũng chỉ là tư tưởng của giai cấp thống trị”
 
 
 Tác phẩm “Tuyên ngôn Đảng Cộng sản”
-
-
 
 Ăngghen (28/ 11/ 1820 – 5/ 8/ 1895) – người Đức – học kỹ thuật
-Lần đầu tiên Ph. Ăngghen nói chủ nghĩa Mác cấu thành bởi ba bộ phận trong tác phẩm: “Chống Đuyrinh”
-“Chống Đuyrinh” – được Lenin ca ngợi là bách khoa toàn thư thực sự của chủ nghĩa CS
-“Thực hiện sự nghiệp giải phóng thế giới ấy - đó là sứ mệnh lịch sử của giai cấp vô sản hiện đại”
-“Tất cả mọi tôn giáo chẳng qua chỉ là sự phản ánh hư ảo - vào trong đầu óc của con người - của những lực lượng ở bên ngoài chi phối cuộc sống hàng ngày của họ; chỉ là sự phản ánh trong đó những lực lượng ở trần thế đã mang hình thức những lực lượng siêu trần thế”
-“Ý nghĩa của chủ nghĩa không tưởng phê phán và của chủ nghĩa cộng sản không tưởng phê phán là tỉ lệ nghịch với thời gian”.
-“Những tư tưởng thống trị của một thời đại bao giờ cũng chỉ là tư tưởng của giai cấp thống trị”
-“Tôi coi sự phát triển của những hình thái kinh tế xã hội là một quá trình lịch sử tự nhiên”
-Tác phẩm “Nguồn gốc của gia đình, của chế độ tư hữu và của Nhà nước”
 
+Lần đầu tiên Ph. Ăngghen nói chủ nghĩa Mác cấu thành bởi ba bộ phận trong tác phẩm: “Chống Đuyrinh”
+
+“Chống Đuyrinh” – được Lenin ca ngợi là bách khoa toàn thư thực sự của chủ nghĩa CS
+
+“Thực hiện sự nghiệp giải phóng thế giới ấy - đó là sứ mệnh lịch sử của giai cấp vô sản hiện đại”
+
+“Tất cả mọi tôn giáo chẳng qua chỉ là sự phản ánh hư ảo - vào trong đầu óc của con người - của những lực lượng ở bên ngoài chi phối cuộc sống hàng ngày của họ; chỉ là sự phản ánh trong đó những lực lượng ở trần thế đã mang hình thức những lực lượng siêu trần thế”
+
+“Ý nghĩa của chủ nghĩa không tưởng phê phán và của chủ nghĩa cộng sản không tưởng phê phán là tỉ lệ nghịch với thời gian”.
+
+“Những tư tưởng thống trị của một thời đại bao giờ cũng chỉ là tư tưởng của giai cấp thống trị”
+
+“Tôi coi sự phát triển của những hình thái kinh tế xã hội là một quá trình lịch sử tự nhiên”
+
+Tác phẩm “Nguồn gốc của gia đình, của chế độ tư hữu và của Nhà nước”
 
 Tác phẩm “Tuyên ngôn Đảng Cộng sản”
 
-
-
 Xanh Xi Mông
+
 Luận giải lý thuyết giai cấp và xung đột giai cấp
+
 Nhà tư tưởng tiêu biểu đầu thế kỷ XIX
+
 Nửa vời
+
 Chủ nghĩa không tưởng phê phán Pháp
 
 
 Phurie
-Nền sản xuất tư bản chủ nghĩa vô chính phủ
-Nhà tư tưởng tiêu biểu đầu thế kỷ XIX
-Người làm nhiều ăn ít, người làm ít ăn nhiều
-Chủ nghĩa không tưởng phê phán Pháp
-Nghèo khổ sinh ra từ sự thừa thãi
 
+Nền sản xuất tư bản chủ nghĩa vô chính phủ
+
+Nhà tư tưởng tiêu biểu đầu thế kỷ XIX
+
+Người làm nhiều ăn ít, người làm ít ăn nhiều
+
+Chủ nghĩa không tưởng phê phán Pháp
+
+Nghèo khổ sinh ra từ sự thừa thãi
 
 Nêu tư tưởng: Trình độ giải phóng xã hội được đo bằng trình độ giải phóng phụ nữ
 
-
 Được Ăngghen nhận xét là “có tầm mắt rộng thiên tài”
-
 
 Được Ăngghen đánh giá là “nắm phép biện chứng một cách tài tình như Hê – ghen là người đương thời với ông”?
 
-
 Chia lịch sử phát triển của nhân loại thành các giai đoạn: mông muội, dã man, gia trưởng và văn minh
 
-
-
-
-
-
-
-
-
-
-
-
-
-
 Ôoen
+
 Thực nghiệm xã hội cộng sản trong lòng xã hội tư bản
+
 Nhà tư tưởng tiêu biểu đầu thế kỷ XIX
+
 Bị phá sản trong khi thực nghiệm tư tưởng CSCN của mình
+
 Chủ nghĩa không tưởng phê phán Pháp
-Được Ăng – ghen nhận xét “Mọi phong trào xã hội, mọi thành tựu thực sự đã diễn ra ở Anh vì lợi ích của công nhân đều gắn với tên tuổi của ông”
 
-
-
+Được Ăng – ghen nhận xét “Mọi phong trào xã hội, mọi thành tựu thực sự đã diễn ra ở Anh vì lợi ích của công nhân đều gắn 
+với tên tuổi của ông”
 
 Tô Mát Morơ
-Nhà tư tưởng XHCN tiêu biểu TK 16
-“Không tưởng” ( Utôpi )
-Khái quát quá trình tích lũy tư bản là quá trình “Cừu ăn thịt người”
 
+Nhà tư tưởng XHCN tiêu biểu TK 16
+
+“Không tưởng” ( Utôpi )
+
+Khái quát quá trình tích lũy tư bản là quá trình “Cừu ăn thịt người”
 
 Người mở đầu các trào lưu xã hội chủ nghĩa và cộng sản chủ nghĩa thời cận đại
 
 
-
-
 Lênin (22/ 4/ 1870 – 21/ 1/ 1924)
+
 Người đặt vấn đề sử dụng và học tập các kinh nghiệm tổ chức và quản lý kinh tế của chủ nghĩa tư bản để cải tạo nền kinh tế tiểu nông lạc hậu
+
 “CNXH là sự phản kháng và đấu tranh chống sự bóc lột người lao động, một cuộc đấu tranh nhằm hoàn toàn xóa bỏ sự bóc lột”
 Định nghĩa về giai cấp trong “ Sáng kiến vĩ đại “
+
 “Sáng kiến vĩ đại”
+
 “Chủ nghĩa xã hội khoa học tức là chủ nghĩa Mác”
+
 “Chủ nghĩa đế quốc là sự chuẩn bị vật chất đầy đủ nhất cho cách mạng vô sản”
+
 Tác phẩm nào được Lênin coi là cuốn bách khoa toàn thư thực sự của chủ nghĩa cộng sản? “Chống Đuyrinh”
 “Đồng ca – Đơn ca”
+
 là người đầu tiên đưa ra khái niệm cách mạng dân chủ tư sản kiểu mới
+
 “Chuyên chính…Liên minh…”
+
 “Chế độ dân chủ vô sản so với bất cứ chế độ dân chủ tư sản nào cũng dân chủ gấp triệu lần”
+
 “Vô sản tất cả các nước và các dân tộc bị áp bức, đoàn kết lại”
+
 Tác phẩm được Lê – nin đánh giá là tác phẩm chủ yếu và cơ bản trình bày CNXHKH: “Tư bản” (Các Mác)
 
 
-
-
 Grắc – cơ Ba – bớp
+
 Chủ trương thiết lập nền “ Chuyên chính cách mạng của những người lao động”
+
 “Tuyên ngôn của những người bình dân”
+
 Đặt vấn đề đấu tranh cho CNXH với tính cách là một phong trào thực tiễn (Phong trào hiện thực)
 
 
-
-
 Tô – ma – đô Campanenla – “Thành phố mặt trời” – Người mơ ước xây dựng thành phố mặt trời, trong đó không có nạn thất nghiệp, không có kẻ lười biếng, ai cũng lao động
+
 Giăng Mê – li – ê – “Những di chúc của tôi”
+
 Xanh – xi – mông; Phurie; Ôoen: Nhà tư tưởng tiêu biểu đầu thế kỷ XIX
+
 Lý thuyết phân kỳ hình thái kinh tế-xã hội cộng sản chủ nghĩa lần đầu tiên được đề cập trong tác phẩm: “Tuyên ngôn ĐCS”
+
 Tác phẩm đầu tiên mà Các Mác và Ăng ghen viết chung là tác phẩm: “Gia đình thần thánh”
+
 Người đầu tiên đưa ra khái niệm về CÁCH MẠNG TƯ SẢN KIỂU MỚI: Lê nin
-Ai đã nhận xét: “Ý nghĩa của chủ nghĩa không tưởng phê phán và của chủ nghĩa cộng sản không tưởng phê phán là tỉ lệ nghịch với thời gian”? CÁC MÁC VÀ ĂNGGHEN
-Điều 8 luật hôn nhân và gia đình 2014
-8 phương hướng 12 nhiệm vụ 6 mối quan hệ lớn
+
+Ai đã nhận xét: “Ý nghĩa của chủ nghĩa không tưởng phê phán và của chủ nghĩa cộng sản không tưởng phê phán là tỉ lệ nghịch 
+với thời gian”? CÁC MÁC VÀ ĂNGGHEN
+
+Điều 8 luật hôn nhân và gia đình 2014 - 8 phương hướng 12 nhiệm vụ 6 mối quan hệ lớn
+
 Câu “Tôi coi sự phát triển của những hình thái kinh tế xã hội là một quá trình lịch sử tự nhiên” là CÁC MÁC
+
 Cương lĩnh xây dựng đất nước trong thời kỳ quá độ lên chủ nghĩa xã hội được Đảng ta nêu ra ở Đại hội VII
+
 “Thời kì phát triển mới - đẩy mạnh công nghiệp hoá, hiện đại hoá đất nước” được Đảng ta nêu ra ở Đại hội VIII
+
 Trạng thái – Lý tưởng – Hiện thực
+
 Nước cộng hoà dân chủ nhân dân đầu tiên ra đời ở châu Á là nước nào? MÔNG CỔ
+
 Liên bang CH XHCN Xô-viết (Liên Xô) được thành lập năm nào? 1922
+
 Điền từ còn thiếu vào chỗ trống: Giai cấp công nhân là cơ sở....  của Đảng cộng sản, là nguồn bổ sung lực lượng của Đảng cộng sản? XÃ HỘI – GIAI CẤP
-Cơ sở để xác định thời đại và phân chia thời đại là gì? Hình thái kinh tế - xã hội và vị trí của một giai cấp đứng ở vị trí trung tâm
+
+Cơ sở để xác định thời đại và phân chia thời đại là gì? Hình thái kinh tế - xã hội và vị trí của một giai cấp đứng ở vị 
+trí trung tâm
+
 Thời đại ngày nay tồn tại mấy mâu thuẫn cơ bản? 4
+
 Thời đại hiện nay có mấy giai đoạn chính? 4
+
 Ai là người đưa ra lí thuyết “Ba làn sóng” hay “Ba nền văn minh”? Alvin - Toffơlơ
 
-Trong những mâu thuẫn cơ bản của thời đại hiện nay, mâu thuẫn nào là nổi bật, xuyên suốt thời đại mang tính toàn cầu? TƯ BẢN VÀ LAO ĐỘNG
+Trong những mâu thuẫn cơ bản của thời đại hiện nay, mâu thuẫn nào là nổi bật, xuyên suốt thời đại mang tính toàn cầu? TƯ 
+
+BẢN VÀ LAO ĐỘNG
+
 Công nghiệp hoá là KHÔNG BẮT BUỘC VỚI MỌI QUỐC GIA ĐI LÊN CNXH
+
 Phạm trù dân chủ xuất hiện khi nào? KHI CÓ NHÀ NƯỚC
+
 “Quyền không bao giờ có thể ở một mức độ cao hơn chế độ … và sự phát triển văn hoá của xã hội do chế độ … đó quyết định” (Mác: Phê phán Cương lĩnh Gôta) KINH TẾ
+
 Câu “Thực hành dân chủ là cái chìa khoá vạn năng có thể giải quyết mọi khó khăn” là của ai? HỒ CHÍ MINH
+
 Khái niệm “Hệ thống chính trị xã hội chủ nghĩa” do tổ chức nào sau đây nêu ra? ĐẢNG CỘNG SẢN VIỆT NAM
+
 Theo Đảng ta cấu trúc cơ bản của hệ thống chính trị xã hội chủ nghĩa bao gồm: ĐẢNG CỘNG SẢN VIỆT NAM, NHÀ NƯỚC, CÁC TỔ CHỨC CHÍNH TRỊ
+
 Tổ chức nào đóng vai trò trụ cột trong hệ thống chính trị ở nước ta hiện nay? NHÀ NƯỚC XHCN
 
 Hệ thống chính trị ở Việt Nam hiện nay ra đời từ khi nào?1945
