@@ -246,22 +246,42 @@ Hệ thống chính trị ở Việt Nam hiện nay ra đời từ khi nào?1945
 Những đặc trưng cơ bản của chủ nghĩa xã hội mà nhân dân ta đang xây dựng hiện nay được thông qua tại? 6 đặc trưng – đại hội VII 1991
 Câu “Giữ vững và tăng cường bản chất giai cấp công nhân của Đảng. Đây là nhiệm vụ có ý nghĩa quan trọng hàng đầu đối với Đảng ta”. Được ghi ở Văn kiện nào Đại hội nào của Đảng? VIII
 
+
 Câu “Vô sản tất cả các nước và các dân tộc bị áp bức, đoàn kết lại” là của ai? LÊ NIN
+
 Tác phẩm: “Về quyền dân tộc tự quyết” là của ai? LÊ NIN
+
 Hiện nay các dân tộc thiểu số ở nước ta có dân số chiếm tỉ lệ bao nhiêu phần trăm số dân cả nước 13%
-Nghị quyết “Về phát huy sức mạnh đại đoàn kết dân tộc vì dân giàu nước mạnh, xã hội công bằng, dân chủ, văn minh” được đề cập đến ở Hội nghị Trung ương nào? HỘI NGHỊ TRUNG ƯƠNG VII ĐẠI HỘI IX
+
+Nghị quyết “Về phát huy sức mạnh đại đoàn kết dân tộc vì dân giàu nước mạnh, xã hội công bằng, dân chủ, văn minh” được đề 
+cập đến ở Hội nghị Trung ương nào? HỘI NGHỊ TRUNG ƯƠNG VII ĐẠI HỘI IX
+
 Hãy tìm ý đúng trong các phương án dưới đây. Trong Văn kiện Đại hội đại biểu toàn quốc lần thứ IX, Đảng Cộng sản Việt Nam đã nêu rõ: ĐẠI ĐOÀN KẾT DÂN TỘC LÀ VẤN ĐỀ CHIẾN LƯỢC CỦA SỰ NGHIỆP CÁCH MẠNG
+
 Cơ sở tồn tại của tôn giáo là gì? TỒN TẠI XÃ HỘI
+
 Câu “Tôn giáo là thuốc phiện của nhân dân” là của ai? CÁC MÁC
+
 Số lượng tôn giáo lớn và số lượng tín đồ của các tôn giáo đó ở nước ta có khoảng bao nhiêu 6 TÔN GIÁO, 20 TRIỆU TÍN ĐỒ
+
 Điền từ còn thiếu vào chỗ trống: Tôn trọng, bảo đảm quyền tự do….  và không… của nhân dân. TÍN NGƯỠNG
+
 Tác phẩm “Nguồn gốc của gia đình, của chế độ tư hữu và của Nhà nước” là của ai? ĂNGGHEN
-Câu “Nhưng bản chất con người không phải là những cái gì trừu tượng, cố hữu của cá nhân riêng biệt, trong tính hiện thực của nó, bản chất con người là tổng hoà những quan hệ xã hội” trong tác phẩm nào? LUẬN CƯƠNG CỦA PHOI Ơ BẮC
+
+Câu “Nhưng bản chất con người không phải là những cái gì trừu tượng, cố hữu của cá nhân riêng biệt, trong tính hiện thực 
+của nó, bản chất con người là tổng hoà những quan hệ xã hội” trong tác phẩm nào? LUẬN CƯƠNG CỦA PHOI Ơ BẮC
+
 Con người phát triển và hoàn thiện mình chủ yếu dựa trên yếu tố nào? LAO ĐỘNG SẢN XUẤT
-Điền từ còn thiếu vào chỗ trống: Cách mạng tư tưởng và văn hoá là cần thiết và tất yếu để thay đổi… tinh thần, làm cho... tinh thần của xã hội phù hợp với phương thức sản xuất mới xét về mặt kinh tế đã hình thành. PHƯƠNG THỨC SẢN XUẤT
+
+Điền từ còn thiếu vào chỗ trống: Cách mạng tư tưởng và văn hoá là cần thiết và tất yếu để thay đổi… tinh thần, làm cho... 
+tinh thần của xã hội phù hợp với phương thức sản xuất mới xét về mặt kinh tế đã hình thành. PHƯƠNG THỨC SẢN XUẤT
+
 Yếu tố nào có tác động trực tiếp để phát huy nguồn lực con người? PHÁT TRIỂN KINH TẾ XÃ HỘI
+
 Câu “Những tư tưởng thống trị của một thời đại bao giờ cũng chỉ là tư tưởng của giai cấp thống trị” của ai? CÁC MÁC VÀ ĂNG GHEN
+
 “Muốn xây dựng CNXH, trước hết cần có những con người XHCN” được Bác nói ở đâu? HỘI NGHỊ BỒI DƯỠNG LÃNH ĐẠO CÁC CẤP TOÀN MIỀN BẮC THÁNG 3 1961
+
 Tìm phuơng án đúng cho câu: “Hiền tài là nguyên khí của quốc gia, nguyên khí thịnh thì thế nước mạnh, nguyên khí suy thì thế nước hèn và càng xuống thấp”. LỜI GHI TRÊN BIA CỦA VĂN MIẾU QUỐC TỬ GIÁM
 
 
